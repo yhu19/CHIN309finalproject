@@ -1,4 +1,4 @@
-# Walk in Tang Dynasty
+# Into the Culture of the Tang Dynasty
 ### By Jerry Hu
 ### Professor Vierthaler
 ### CHIN 309: Chinese Literature in English
