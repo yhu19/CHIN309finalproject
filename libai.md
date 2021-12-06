@@ -1,3 +1,3 @@
 # Li Bai
 
-![](libai.jpg)
+![](libai.jpg|width=100)
