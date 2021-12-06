@@ -19,9 +19,13 @@ Li Bai is probably the most famous Tang Dynasty poets that people always hear ab
 Still Night Thoughts
 
 Moonlight in front of my bed-
+
 I took it for frost on the ground!
+
 I lift my head, gaze at the bright moon,
+
 lower it and dream of home.
+
 
 -Translated by Burton Watson
 
