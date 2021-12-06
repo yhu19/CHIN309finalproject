@@ -30,11 +30,17 @@ lower it and dream of home.
 -Translated by Burton Watson
 
 Simplified Chinese version:
+
 《静夜思》
+
 床前明月光
+
 疑是地上霜
+
 举头望明月
+
 低头思故乡
+
 
 A poetry recitation can be found in here: [https://www.youtube.com/watch?v=JvBReKdFYN0]()
 
