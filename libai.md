@@ -1,6 +1,6 @@
 # Li Bai
 
-###Libai's figure
+### Libai's figure
 
 ![](libai.jpg)
 
