@@ -27,7 +27,7 @@ I lift my head, gaze at the bright moon,
 lower it and dream of home.
 
 
--Translated by Burton Watson
+- Translated by Burton Watson
 
 Simplified Chinese version:
 
