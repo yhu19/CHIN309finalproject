@@ -12,7 +12,7 @@ More backgroud information can be found in: [https://en.wikipedia.org/wiki/Wang_
 
 ### Writing style
 
-Bai Juyi focuses on both realism and lyricism. Two types of poems that he particularly valued were leisurely poems and satirical poems. The language of his poems is plain and easy to understand, vivid and natural. In the simplest words, he captures the characteristics of characters or scenes and draws a vivid picture.
+Wang Wei's achievements in poetry are manifold. In terms of poetic content, his poems on the frontier, landscape and boudoir have all been handed down to the public as masterpieces. His poems on landscapes and gardens are far-reaching and tranquil; his poems on the frontier are bright and clear, with a boldness; his poems on boudoir and friends are deep and sincere, with a touching euphemism. In his poems, Wang Wei is able to express his emotions in a quiet way, depicting the natural beauty while revealing the leisurely and relaxed interest of his leisure life.
 
 
 ### Poems and Appreciations (Poems' names may vary due to different version of translation)
