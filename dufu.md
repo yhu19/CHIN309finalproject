@@ -27,7 +27,7 @@ Fearing leaving    the birds tangled hearths.
 
 Watch-tower fires    have been burning for three months
 
-To get a not from home    would cost ten thousand gold.
+To get a note from home    would cost ten thousand gold.
 
 Scratching my    white hair thinner
 
@@ -52,5 +52,5 @@ Simplified Chinese version:
 A poetry recitation can be found in here: [https://www.youtube.com/watch?v=iCwKqC8vJNU]()
 
 
-The first four lines of this poem describe the miserable and decaying scene of Chang'an in spring, full of emotions about its rise and fall. At the beginning of the poem, the poet describes what he sees in the spring: the poet remembers how prosperous Chang'an used to be in spring, but that scene is gone today. The flowers in spring were originally delicate and bright, and their fragrance was charming; the birds in spring should be cheering and singing pleasantly, giving people pleasure, but the flowers and birds have resentment because of people. The last four lines of the poem are about the poet's feelings of missing his relatives and thinking about his country's affairs, which are full of miserable and sad thoughts. The war has been going on continuously for a spring, but it is still not over. "To get a not from home would cost ten thousand gold" reflects the poet's desperate feeling when he is isolated from his wife and children and has not heard from them for a long time. The last line reflects the poet's inner pain and sorrow. The last line reflects the poet's anguish and sorrow. "White hair" is the result of sorrow, and "scratching" is a way to relieve sorrow but it never worked out. The poem is meticulously composed, with a delicate counterpoint and a melancholy voice.
+The first four lines of this poem describe the miserable and decaying scene of Chang'an in spring, reflecting Du was full of emotions about its rise and fall. At the beginning of the poem, Du describes what he sees in the spring: how prosperous Chang'an used to be in spring, but that scene is gone today. The flowers in spring were originally delicate and bright, and their fragrance was charming; the birds in spring should be cheering and singing pleasantly, giving people pleasure. However, things have changed: the flowers and birds have resentment because of people. The last four lines of the poem are about the poet's feelings of missing his relatives and thinking about his country's affairs, which are full of miserable and sad thoughts. The war has been going on continuously for a spring, but it is still not over. "To get a note from home would cost ten thousand gold" reflects the poet's desperate feeling when he is isolated from his wife and children and has not heard from them for a long time. The last line reflects the poet's inner pain and sorrow. "White hair" is the result of sorrow, and "scratching" is a way to relieve sorrow but it never worked out. The poem is meticulously composed, with a delicate counterpoint and a melancholy voice.
 
