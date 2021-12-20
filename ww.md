@@ -27,7 +27,6 @@ Returning light enters the deep forest,
 
 Again shining upon the green moss.
 
-
 - Translated by Richard W. Bodman and Victor H. Mair
 
 Simplified Chinese version:
