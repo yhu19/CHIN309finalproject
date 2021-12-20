@@ -2,7 +2,7 @@
 
 ### Du Fu's figure
 
-![](dufu.jpg)
+![](Dufu.jpg)
 
 ### Introduction
 
