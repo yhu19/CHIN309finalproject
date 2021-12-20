@@ -2,7 +2,7 @@
 
 ### Wang Wei's figure
 
-![](ww.JPG)
+![](ww.jpg)
 
 ### Introduction
 
