@@ -6,9 +6,9 @@
 
 ### Introduction
 
-Bai Juyi (also Bo Juyi or Po Chü-i; Chinese: 白居易; 772–846), courtesy name Letian (Chinese: 樂天), was a renowned Chinese poet and Tang dynasty government official. Many of his poems concern his career or observations made about everyday life, including as governor of three different provinces. He achieved fame as a writer of verse in a low-key, near vernacular style that was popular throughout China, in Korea and Japan. 
+Wang Wei (Chinese: 王維; 699–759) was a Chinese poet, musician, painter, and politician during the Tang dynasty. He was one of the most famous men of arts and letters of his time. Many of his poems are preserved, and twenty-nine were included in the highly influential 18th-century anthology Three Hundred Tang Poems.
 
-More backgroud information can be found in: [https://en.wikipedia.org/wiki/Bai_Juyi]()
+More backgroud information can be found in: [https://en.wikipedia.org/wiki/Wang_Wei_(Tang_dynasty)]()
 
 ### Writing style
 
