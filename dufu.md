@@ -34,7 +34,7 @@ Scratching my    white hair thinner
 Seething hopes    all in a trrembling hairpin.
 
 
--Translated by Gary Snyder
+- Translated by Gary Snyder
 
 Simplified Chinese version:
 
