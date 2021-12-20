@@ -2,7 +2,7 @@
 
 ### Bai Juyi's figure
 
-![](baijy.jpg)
+![](baijy.JPG)
 
 ### Introduction
 
