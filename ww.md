@@ -17,41 +17,29 @@ Wang Wei's achievements in poetry are manifold. In terms of poetic content, his 
 
 ### Poems and Appreciations (Poems' names may vary due to different version of translation)
 
-#### Walking in Spring by West Lake
+#### Deer Enclosure
 
-North of Lone Hill Temple, west of the Jia Pavilion,
+On the empty mountain, seeing no one,
 
-The water's surface has just smoothed, the foot of the cloud low.
+Only hearing the echoes of someone's voice;
 
-Wherever you go new-risen orioles jostle for the warmest tree:
+Returning light enters the deep forest,
 
-What are they after, the newborn swallows that peak at the spring mud?
-
-A riot of blossoms not long from now will be dazzling to the eye,
-
-The shallow grass can hardly yet submerge the horse's hoof.
-
-Best loved of all, to the east of the lake, where I can never walk enough,
-
-In the shade of the green willows, the causeway of white sand.
+Again shining upon the green moss.
 
 
-- A.C. Graham, trans., *Poems of the West Lake: Translations from the Chinese (London: Wellsweep, 1990)*, p.15.
+- Translated by Richard W. Bodman and Victor H. Mair
 
 Simplified Chinese version:
 
-《钱塘湖春行》
+《鹿柴》
 
-孤山寺北贾亭西，水面初平云脚低。
+空山不见人，但闻人语响。
 
-几处早莺争暖树，谁家新燕啄春泥。
-
-乱花渐欲迷人眼，浅草才能没马蹄。
-
-最爱湖东行不足，绿杨阴里白沙堤。
+返景入深林，复照青苔上。
 
 
-A poetry recitation can be found in here: [https://www.youtube.com/watch?v=OquMyl0E-yY]()
+A poetry recitation can be found in here: [https://www.youtube.com/watch?v=89eH7AV69sk]()
 
 
 This is a famous poem depicting the beauty of West Lake by Bai Juyi. The poem is full of features of the environment and the seasons, depicting the West Lake, which has just entered the spring, in a lively manner. The first line of the poem is about the lake in general, pointing out the location of Qiantang Lake and the surrounding scenery, giving people a feeling of being in the place. The second couplet of the poem is a vivid description of the warblers and swallows the poet sees when he looks up, reflecting the vitality of spring. The third couplet describes the flowers and plants that the poet observes when he bends down. The use of the words "dazzling" and "hardly" transforms the objective natural scenery into a scene in the poet's eyes with subjective feelings, which makes the reader feel a deeper impact. In the last line, "never walk enough" shows the feeling of not wanting to finish and not wanting to leave.
