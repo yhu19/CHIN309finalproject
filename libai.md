@@ -48,4 +48,19 @@ This poem is about the feeling of missing one's hometown in the silent moonlight
 
 The first two stanzas of the poem are about the illusion that the poet has for a moment in the specific environment of being a guest in another country. A person who is alone in another country can dilute his sorrow during the daytime, but when it is late at night, his heart will inevitably be filled with waves of longing for his hometown. The moon is bright, not to mention the autumn night, when the moon is as frosty. These two lines vividly express that the poet woke up from a sleep and mistook the cold moonlight in front of his bed for the frost on the ground in his daze. The word "frost" expresses even more, describing not only the brightness of the moonlight, but also the coldness of the season, and underlining the poet's loneliness and desolation in his homeland. In the last two lines of the poem, the poet deepens his homesickness through the portrayal of his movements and demeanor, showing that the poet has turned from being confused to being awake.
 
+#### Variant translation
+
+#### Quiet Night Thoughts
+
+Before my bed there's a pool of light
+
+I wonder if it's frost on the ground
+
+Looking up, I find the moon bright
+
+Then bowing my head, I drown in homesickness
+
+- From *Rare Book Preservation Society*
+
+I am putting another version of translation here, not necessarily to compare which version is better, but to discuss the difference between them. In my opinion, the first version is more direct because in the first version, the first stanza points out it is the moonlight shining; while the second version is only saying "a pool of light". However, the second version seems to express that the poet was a bit confused from the wording, like "wonder", "find"; and it is probably because the poem was composed in the late night.
 
