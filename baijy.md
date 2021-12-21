@@ -8,7 +8,7 @@
 
 Bai Juyi (also Bo Juyi or Po Chü-i; Chinese: 白居易; 772–846), courtesy name Letian (Chinese: 樂天), was a renowned Chinese poet and Tang dynasty government official. Many of his poems concern his career or observations made about everyday life, including as governor of three different provinces. He achieved fame as a writer of verse in a low-key, near vernacular style that was popular throughout China, in Korea and Japan. 
 
-More backgroud information can be found in: [https://en.wikipedia.org/wiki/Bai_Juyi]()
+More backgroud information can be found in: [Bai Juyi's Wikipedia Page](https://en.wikipedia.org/wiki/Bai_Juyi)
 
 ### Writing style
 
@@ -51,7 +51,7 @@ Simplified Chinese version:
 最爱湖东行不足，绿杨阴里白沙堤。
 
 
-A poetry recitation can be found in here: [https://www.youtube.com/watch?v=OquMyl0E-yY]()
+A poetry recitation can be found in [here](https://www.youtube.com/watch?v=OquMyl0E-yY)
 
 
 This is a famous poem depicting the beauty of West Lake by Bai Juyi. The poem is full of features of the environment and the seasons, depicting the West Lake, which has just entered the spring, in a lively manner. The first line of the poem is about the lake in general, pointing out the location of Qiantang Lake and the surrounding scenery, giving people a feeling of being in the place. The second couplet of the poem is a vivid description of the warblers and swallows the poet sees when he looks up, reflecting the vitality of spring. The third couplet describes the flowers and plants that the poet observes when he bends down. The use of the words "dazzling" and "hardly" transforms the objective natural scenery into a scene in the poet's eyes with subjective feelings, which makes the reader feel a deeper impact. In the last line, "never walk enough" shows the feeling of not wanting to finish and not wanting to leave.
