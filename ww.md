@@ -8,7 +8,7 @@
 
 Wang Wei (Chinese: 王維; 699–759) was a Chinese poet, musician, painter, and politician during the Tang dynasty. He was one of the most famous men of arts and letters of his time. Many of his poems are preserved, and twenty-nine were included in the highly influential 18th-century anthology Three Hundred Tang Poems.
 
-More backgroud information can be found in: [https://en.wikipedia.org/wiki/Wang_Wei_(Tang_dynasty)]()
+More backgroud information can be found in: [Wang Wei's Wikipedia Page](https://en.wikipedia.org/wiki/Wang_Wei_(Tang_dynasty))
 
 ### Writing style
 
@@ -38,7 +38,7 @@ Simplified Chinese version:
 返景入深林，复照青苔上。
 
 
-A poetry recitation can be found in here: [https://www.youtube.com/watch?v=89eH7AV69sk]()
+A poetry recitation can be found in [here](https://www.youtube.com/watch?v=89eH7AV69sk)
 
 
 The first impression of this poem is that it is about an empty mountain with few people and a forest of ancient trees, but it is intended to create a realm of emptiness and seclusion. The first stanza firstly describes the empty mountain without any trace, focusing on the empty and cold nature of the mountain. The second stanza is very intriguing and fascinating. The poem clearly states that there is no one in the mountain, but the poet writes that he suddenly hears the sound of someone talking, and when he looks around, he does not see a single shadow of a person, which shows how dense and deep the mountain forest is, and makes the reader feel like he is in the place. The third and fourth lines are from the description of the empty mountains in the previous frame to the description of the deep forest back to the light, from the sound to the scenery. The deep forest is dark, and the moss under the trees further highlights the lack of sunlight in the deep forest, which gives the readers the feeling of emptiness and seclusion.
