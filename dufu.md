@@ -8,7 +8,7 @@
 
 Du Fu (Chinese: 杜甫; Wade–Giles: Tu Fu; 712–770) was a Chinese poet and politician of the Tang dynasty. Along with his elder contemporary and friend Li Bai (Li Po), he is frequently called the greatest of the Chinese poets.[1] His greatest ambition was to serve his country as a successful civil servant, but he proved unable to make the necessary accommodations. His life, like the whole country, was devastated by the An Lushan Rebellion of 755, and his last 15 years were a time of almost constant unrest. 
 
-More backgroud information can be found in: [https://en.wikipedia.org/wiki/Du_Fu]()
+More backgroud information can be found in: [Li Bai's Wikipedia Page](https://en.wikipedia.org/wiki/Du_Fu)
 
 ### Writing style
 
