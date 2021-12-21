@@ -42,7 +42,7 @@ Simplified Chinese version:
 低头思故乡
 
 
-A poetry recitation can be found in here: [https://www.youtube.com/watch?v=JvBReKdFYN0]()
+A poetry recitation can be found in [here](https://www.youtube.com/watch?v=JvBReKdFYN0)
 
 This poem is about the feeling of missing one's hometown in the silent moonlight night.
 
