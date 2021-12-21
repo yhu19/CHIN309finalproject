@@ -8,7 +8,7 @@
 
 Du Fu (Chinese: 杜甫; Wade–Giles: Tu Fu; 712–770) was a Chinese poet and politician of the Tang dynasty. Along with his elder contemporary and friend Li Bai (Li Po), he is frequently called the greatest of the Chinese poets.[1] His greatest ambition was to serve his country as a successful civil servant, but he proved unable to make the necessary accommodations. His life, like the whole country, was devastated by the An Lushan Rebellion of 755, and his last 15 years were a time of almost constant unrest. 
 
-More backgroud information can be found in: [Li Bai's Wikipedia Page](https://en.wikipedia.org/wiki/Du_Fu)
+More backgroud information can be found in: [Du Fu's Wikipedia Page](https://en.wikipedia.org/wiki/Du_Fu)
 
 ### Writing style
 
@@ -49,7 +49,7 @@ Simplified Chinese version:
 白头搔更短，浑欲不胜簪。
 
 
-A poetry recitation can be found in here: [https://www.youtube.com/watch?v=iCwKqC8vJNU]()
+A poetry recitation can be found in [here](https://www.youtube.com/watch?v=iCwKqC8vJNU)
 
 
 The poem was composed by Du Fu because the mixed feeling that he had when he witenessed the depression and desolation of Chang'an City as a prisoner of the war. The first four lines of this poem describe the miserable and decaying scene of Chang'an in spring, reflecting Du was full of emotions about its rise and fall. At the beginning of the poem, Du describes what he sees in the spring: how prosperous Chang'an used to be in spring, but that scene is gone today. The flowers in spring were originally delicate and bright, and their fragrance was charming; the birds in spring should be cheering and singing pleasantly, giving people pleasure. However, things have changed: the flowers and birds have resentment because of people. The last four lines of the poem are about the poet's feelings of missing his relatives and thinking about his country's affairs, which are full of miserable and sad thoughts. The war has been going on continuously for a spring, but it is still not over. "To get a note from home would cost ten thousand gold" reflects the poet's desperate feeling when he is isolated from his wife and children and has not heard from them for a long time. The last line reflects the poet's inner pain and sorrow. "White hair" is the result of sorrow, and "scratching" is a way to relieve sorrow but it never worked out. The poem is meticulously composed, with a delicate counterpoint and a melancholy voice.
